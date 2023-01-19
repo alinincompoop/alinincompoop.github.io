@@ -11,9 +11,7 @@
   Would like to reccommend "Haikyu!" hsadjhagsdha it's nice
   ![ali](https://i.pinimg.com/564x/a6/75/38/a67538552395bca76dcf80d1d0aad122.jpg)
   
-Foods: 🍇🥔🥐🍗🥓🍔🍟🍕🍜🍤🍦🍧🍨🍪🍩🍫🍬🍭🍹
-
-✨potatoes are my fave✨
+foods: 🍇🥔🥐🍗🥓🍔🍟🍕🍜🍤🍦🍧🍨🍪🍩🍫🍬🍭🍹     ✨potatoes are my fave✨
 
 **Interests:**
 
