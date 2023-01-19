@@ -12,13 +12,6 @@
 *Arrowsmith-9*
 
 ---
-**Interests:**
-
-• him
-
-• just him
-
-• only him
 
 👾 **About Me** 👾 
 
@@ -26,8 +19,18 @@
   I'm an athelete, I really like sports especially volleyball and badminton.
   Would like to reccommend "Haikyu!" hsadjhagsdha it's nice
 > ![ali](https://i.pinimg.com/564x/51/02/df/5102df0f03f99a8d31862037d46993e5.jpg)
+
+**Interests:**
+
+• him
+
+• just him
+
+• only him
   
-foods: 🍇🥔🥐🍗🥓🍔🍟🍕🍜🍤🍦🍧🍨🍪🍩🍫🍬🍭🍹     ✨potatoes are my fave✨
+Foods: 🍇🥔🥐🍗🥓🍔🍟🍕🍜🍤🍦🍧🍨🍪🍩🍫🍬🍭🍹
+
+✨potatoes are my fave✨
 
 > series rawr
 
