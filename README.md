@@ -47,7 +47,6 @@ foods: 🍇🥔🥐🍗🥓🍔🍟🍕🍜🍤🍦🍧🍨🍪🍩🍫🍬🍭�
 <iframe width="560" height="315" src="https://www.youtube.com/embed/gnKHBDnEXPs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 ---
 Games If You're Bored!
-• [Geometry Dash](https://geometrydash.io)
 • [Flappy Bird](https://flappybird.io)
 • [Doodle Jump](https://doodlejump.io)
 • [T-Rex Game](https://fivesjs.skipser.com/trex-game/)
