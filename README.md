@@ -4,7 +4,7 @@
 
   I'm an athelete. I really like sports mostly volleyball and badminton.
   
-  would really like to reccommend 'Haikyu!"
+  would really like to reccommend "Haikyu!"
   ![ali](https://i.pinimg.com/564x/a6/75/38/a67538552395bca76dcf80d1d0aad122.jpg)
 
 Interests: 
