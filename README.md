@@ -18,7 +18,7 @@ Interests:
 
 • only him
 
->SERIES
+> series rawr
 ![wew](https://i.pinimg.com/564x/9f/dc/db/9fdcdb3b2a902d720eaf0813d5aada7d.jpg)
 
 ![meow](https://i.pinimg.com/564x/b1/c7/dd/b1c7dd2b4233230c31656922f009fe9b.jpg)
