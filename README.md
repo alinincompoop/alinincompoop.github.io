@@ -3,11 +3,15 @@
 🎧 listen while scrolling
 <iframe width="560" height="315" src="https://www.youtube.com/embed/wSTYIyQxfPQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 ------
+*Name:*
+Carlynne Nicole-Kyla O. Bailey
 
-Carlynne Nicole-Kyla O. Bailey 
-Arrowsmith-9 
-CN: 8
+*LG:*
+Arrowsmith-9
 
+*CN:*
+8
+---
 **Interests:**
 
 • him
@@ -41,14 +45,14 @@ foods: 🍇🥔🥐🍗🥓🍔🍟🍕🍜🍤🍦🍧🍨🍪🍩🍫🍬🍭�
  
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/gnKHBDnEXPs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-
+---
 Games If You're Bored!
 • [Geometry Dash](https://geometrydash.io)
 • [Flappy Bird](https://flappybird.io)
 • [Doodle Jump](https://doodlejump.io)
 • [T-Rex Game](https://fivesjs.skipser.com/trex-game/)
-• [Pac-Man](https://flappybird.io](https://www.google.com/logos/2010/pacman10-i.html)
+• [Pac-Man](https://flappybird.io)
 
 follow me on insta<<33
 
-[instagram](https://www.instagram.com/p/CfdThAGraFj/?utm_source=ig_web_copy_link)
+![instagram](https://www.instagram.com/p/CfdThAGraFj/?utm_source=ig_web_copy_link)
