@@ -33,7 +33,7 @@ foods: 🍇🥔🥐🍗🥓🍔🍟🍕🍜🍤🍦🍧🍨🍪🍩🍫🍬🍭�
 > series rawr
 
 • We Bare Bears *(Cartoons)*
-> ![wew](https://i.pinimg.com/564x/9f/dc/db/9fdcdb3b2a902d720eaf0813d5aada7d.jpg)
+> ![wew](https://i.pinimg.com/564x/8e/3c/39/8e3c3939cd05961b2cf4e7d54b4f535f.jpg)
 
 • Mieruko-Chan *(Anime)*
 > ![meow](https://i.pinimg.com/564x/b1/c7/dd/b1c7dd2b4233230c31656922f009fe9b.jpg)
