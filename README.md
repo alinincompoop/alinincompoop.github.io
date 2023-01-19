@@ -26,7 +26,7 @@ Arrowsmith-9
 
   I'm an athelete, I really like sports especially volleyball and badminton.
   Would like to reccommend "Haikyu!" hsadjhagsdha it's nice
-  ![ali](https://i.pinimg.com/564x/a6/75/38/a67538552395bca76dcf80d1d0aad122.jpg)
+  ![ali](https://i.pinimg.com/564x/53/9e/b3/539eb3ace8bfe992db2ebe8fc242cec5.jpg)
   
 foods: 🍇🥔🥐🍗🥓🍔🍟🍕🍜🍤🍦🍧🍨🍪🍩🍫🍬🍭🍹     ✨potatoes are my fave✨
 
