@@ -3,13 +3,10 @@
 🎧 listen while scrolling
 <iframe width="560" height="315" src="https://www.youtube.com/embed/wSTYIyQxfPQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 ---
-> 👾 **About Me** 👾 
 
-  I'm an athelete, I really like sports especially volleyball and badminton.
-  Would like to reccommend "Haikyu!" hsadjhagsdha it's nice
-  ![ali](https://i.pinimg.com/564x/a6/75/38/a67538552395bca76dcf80d1d0aad122.jpg)
-  
-foods: 🍇🥔🥐🍗🥓🍔🍟🍕🍜🍤🍦🍧🍨🍪🍩🍫🍬🍭🍹     ✨potatoes are my fave✨
+Carlynne Nicole-Kyla O. Bailey 
+Arrowsmith-9 
+CN: 8
 
 **Interests:**
 
@@ -18,6 +15,15 @@ foods: 🍇🥔🥐🍗🥓🍔🍟🍕🍜🍤🍦🍧🍨🍪🍩🍫🍬🍭�
 • just him
 
 • only him
+
+👾 **About Me** 👾 
+
+
+  I'm an athelete, I really like sports especially volleyball and badminton.
+  Would like to reccommend "Haikyu!" hsadjhagsdha it's nice
+  ![ali](https://i.pinimg.com/564x/a6/75/38/a67538552395bca76dcf80d1d0aad122.jpg)
+  
+foods: 🍇🥔🥐🍗🥓🍔🍟🍕🍜🍤🍦🍧🍨🍪🍩🍫🍬🍭🍹     ✨potatoes are my fave✨
 
 > series rawr
 
@@ -38,4 +44,4 @@ foods: 🍇🥔🥐🍗🥓🍔🍟🍕🍜🍤🍦🍧🍨🍪🍩🍫🍬🍭�
 
 follow me on insta<<33
 
-[instagram](https://www.instagram.com/p/CfdThAGraFj/)
+[instagram](https://www.instagram.com/p/CfdThAGraFj/?utm_source=ig_web_copy_link)
