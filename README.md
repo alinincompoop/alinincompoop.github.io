@@ -3,15 +3,22 @@
 🎧 listen while scrolling
 <iframe width="560" height="315" src="https://www.youtube.com/embed/wSTYIyQxfPQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 ------
-*Name:*
+**Name:**
 
-Carlynne Nicole-Kyla O. Bailey
+*Carlynne Nicole-Kyla O. Bailey*
 
-*LG:*
+**LG:**
 
-Arrowsmith-9
+*Arrowsmith-9*
 
 ---
+| head1        | head two          | three |
+|:-------------|:------------------|:------|
+| ok           | good swedish fish | nice  |
+| out of stock | good and plenty   | nice  |
+| ok           | good oreos      | hmm   |
+| ok           | good zoute drop | yumm  |
+
 
 **Interests:**
 
@@ -26,7 +33,7 @@ Arrowsmith-9
 
   I'm an athelete, I really like sports especially volleyball and badminton.
   Would like to reccommend "Haikyu!" hsadjhagsdha it's nice
-  ![ali](https://i.pinimg.com/564x/51/02/df/5102df0f03f99a8d31862037d46993e5.jpg)
+> ![ali](https://i.pinimg.com/564x/51/02/df/5102df0f03f99a8d31862037d46993e5.jpg)
   
 foods: 🍇🥔🥐🍗🥓🍔🍟🍕🍜🍤🍦🍧🍨🍪🍩🍫🍬🍭🍹     ✨potatoes are my fave✨
 
