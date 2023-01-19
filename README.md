@@ -2,15 +2,10 @@
 
 > 👾 **About Me** 👾 
 
-  I'm an athelete, I really like sports especially volleyball and badminton.
-  
-  would really like to reccommend "Haikyu!"
+  I'm an athelete, I really like sports especially volleyball and badminton.                                                                                             would really like to reccommend "Haikyu!"
   ![ali](https://i.pinimg.com/564x/a6/75/38/a67538552395bca76dcf80d1d0aad122.jpg)
 
-Interests: 
-• him
-• just him
-• only him
+Interests:                                                                                                                                                              • him                                                                                                                                                                   • just him                                                                                                                                                              • only him
 
 > SERIES
 
@@ -22,7 +17,7 @@ Interests:
 
 ![haha](https://i.pinimg.com/564x/fd/46/14/fd4614a1c992603163d3ba916909f1f4.jpg)
  
-Foods: 🍇🥔🥐🍗🥓🍔🍟🍕🍜🍤🥡🍦🍧🍨🍪🍩🍫🍬🍭🍹
+Foods: 🍇🥔🥐🍗🥓🍔🍟🍕🍜🍤🍦🍧🍨🍪🍩🍫🍬🍭🍹
 
 potatoes are✨🥔
 
