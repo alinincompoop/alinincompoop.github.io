@@ -54,4 +54,4 @@ Games If You're Bored!
 
 follow me on insta<<33
 
-![instagram](https://www.instagram.com/p/CfdThAGraFj/?utm_source=ig_web_copy_link)
+(https://www.instagram.com/p/CfdThAGraFj/?utm_source=ig_web_copy_link)
