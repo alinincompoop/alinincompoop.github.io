@@ -3,22 +3,25 @@
 🎧 listen while scrolling
 <iframe width="560" height="315" src="https://www.youtube.com/embed/wSTYIyQxfPQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 ------
-**Name:**
-
 *Carlynne Nicole-Kyla O. Bailey*
-
-**LG:**
 
 *Arrowsmith-9*
 
+*CN: 8*
 ---
 
 👾 **About Me** 👾 
 
 
-  I'm an athelete, I really like sports especially volleyball and badminton.
+  I'm an athelete, I really like sports especially badminton and volleyball.
   Would like to reccommend "Haikyu!" hsadjhagsdha it's nice
 > ![ali](https://i.pinimg.com/564x/51/02/df/5102df0f03f99a8d31862037d46993e5.jpg)
+
+I love animals, pets rather. Planning to do Veteninarian someday, help poor street dogs and study different species.
+
+Foods: 🍇🥔🥐🍗🥓🍔🍟🍕🍜🍤🍦🍧🍨🍪🍩🍫🍬🍭🍹
+
+✨potatoes are my fave✨
 
 **Interests:**
 
@@ -28,10 +31,6 @@
 
 • only him
   
-Foods: 🍇🥔🥐🍗🥓🍔🍟🍕🍜🍤🍦🍧🍨🍪🍩🍫🍬🍭🍹
-
-✨potatoes are my fave✨
-
 > series rawr
 
 • We Bare Bears *(Cartoons)*
@@ -45,7 +44,8 @@ Foods: 🍇🥔🥐🍗🥓🍔🍟🍕🍜🍤🍦🍧🍨🍪🍩🍫🍬🍭�
 
 • Sweet Home *(Korean)*
 > ![haha](https://i.pinimg.com/564x/fd/46/14/fd4614a1c992603163d3ba916909f1f4.jpg)
- 
+---
+addicted to this lately
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/gnKHBDnEXPs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 ---
@@ -58,7 +58,3 @@ Games If You're Bored!
 • [T-Rex Game](https://fivesjs.skipser.com/trex-game/)
 
 • [Pac-Man](https://flappybird.io)
-
-follow me on insta<<33
-
-https://www.instagram.com/p/CfdThAGraFj/?utm_source=ig_web_copy_link
