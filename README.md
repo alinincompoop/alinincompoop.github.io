@@ -6,8 +6,6 @@
 *Carlynne Nicole-Kyla O. Bailey*
 
 *Arrowsmith-9*
-
-*CN: 8*
 ---
 
 👾 **About Me** 👾 
