@@ -58,6 +58,6 @@ Games If You're Bored!
 
 • [T-Rex Game](https://fivesjs.skipser.com/trex-game/)
 
-• [Pac-Man](https://flappybird.io)
+• [Pac-Man](https://www.google.com/logos/2010/pacman10-i.html)
 
 ![wew](https://i.pinimg.com/564x/41/82/ef/4182ef650a8ae9960212e278c0e9891d.jpg)
